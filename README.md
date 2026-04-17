@@ -1,8 +1,6 @@
 # Fern-and-Stuffs
 -----------------------------------------------
-https://s3.amazonaws.com/angelfern/
-https://s3.amazonaws.com/deaganfern/
-https://low.notinthearchives.net/
+[WORKS!!!!!](https://low.notinthearchives.net/)
 https://hai.srcsb.com/
 https://learn.childeducation.site/
 https://homework.childeducation.site/

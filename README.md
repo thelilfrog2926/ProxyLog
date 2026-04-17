@@ -12,6 +12,14 @@ https://palo.dex-online.ro/
 https://math.thongthaitextile.com/
 https://fun.toysland.hk/
 ---------------------------------------------------
+# Other Stuffs
+---------------------------------------------------
+https://woofbite1.blogspot.com/
+
+(OR)
+
+https://schooltimes1010.blogspot.com
+--------------------------------------------------
 # Misc
 --------------------
 https://youtube.com

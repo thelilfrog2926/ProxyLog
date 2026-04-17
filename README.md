@@ -14,7 +14,7 @@ https://fun.toysland.hk/
 ---------------------------------------------------
 # Misc
 --------------------
-https://netlify.app
+https://youtube.com
 https://aniwatchtv.to
 https://fakeoakleysunglassessale.com
 https://discord.gg/fernproxy

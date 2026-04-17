@@ -1,15 +1,10 @@
 # Fern-and-Stuffs
 -----------------------------------------------
 [WORKS!!!!! use this](https://low.notinthearchives.net/)
+[STRAWBERRYWORKS use this too i guess](https://math.thongthaitextile.com/)
 ---------------------------------------------------
-https://hai.srcsb.com/
-https://learn.childeducation.site/
-https://homework.childeducation.site/
-https://studentkeeper.alsrl.com/
-https://dashboard.bryankrawetz.ca/
-https://palo.dex-online.ro/
-https://math.thongthaitextile.com/
-https://fun.toysland.hk/
+# Extra sites (will be tested)
+# None rn twin
 ---------------------------------------------------
 # Other Stuffs
 ---------------------------------------------------

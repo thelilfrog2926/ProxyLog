@@ -6,7 +6,10 @@ https://duckduckgo.com
 [STRAWBERRYWORKS use this too i guess](https://math.thongthaitextile.com/)
 ---------------------------------------------------
 # Extra sites (will be tested)
-# None rn twin
+s3.amazonaws.com/bullyt/index.html
+s3.amazonaws.com/bullisbest/index.html
+s3.amazonaws.com/angelfern/index.html 
+s3.amazonaws.com/deaganfern/index.html
 ---------------------------------------------------
 # Other Stuffs
 ---------------------------------------------------

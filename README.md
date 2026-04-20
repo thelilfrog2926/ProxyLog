@@ -16,6 +16,11 @@ https://duckduckgo.com
 ---------------------------------------------------
 # Extra sites (will be tested)
 # None twin
+https://restinpeaceakane17.presude.hr/
+Copy
+https://f3rnlink.b-cdn.net/
+Copy
+https://fernsplantingschool.b-cdn.net/
 ---------------------------------------------------
 # Other Stuffs
 

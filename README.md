@@ -3,14 +3,11 @@
 https://duckduckgo.com
 -----------------------------------------------
 [WORKS!!!!! use this](https://s3.amazonaws.com/angelfern/index.html )
-[WORKS!!!!! use this](https://s3.amaz)
+[WORKS!!!!! use this as well](https://s3.amazonaws.com/deaganfern/index.html)
 [STRAWBERRYWORKS use this too i guess](https://math.thongthaitextile.com/)
 ---------------------------------------------------
 # Extra sites (will be tested)
-https://s3.amazonaws.com/bullyt/index.html
-https://s3.amazonaws.com/bullisbest/index.html
-https://s3.amazonaws.com/angelfern/index.html 
-https://s3.amazonaws.com/deaganfern/index.html
+# None twin
 ---------------------------------------------------
 # Other Stuffs
 ---------------------------------------------------

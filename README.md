@@ -4,6 +4,8 @@ https://duckduckgo.com
 -----------------------------------------------
 [WORKS!!!!! use this](https://low.notinthearchives.net/)
 [STRAWBERRYWORKS use this too i guess](https://math.thongthaitextile.com/)
+https://geography.nseuropa.com 
+https://schoolwebproxy.com
 ---------------------------------------------------
 # Extra sites (will be tested)
 # None rn twin

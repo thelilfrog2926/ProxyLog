@@ -35,8 +35,13 @@ https://aniwatchtv.to
 https://fakeoakleysunglassessale.com
 https://discord.gg/fernproxy
 https://pleasedontblockchess.com
-https://
-https://
+https://https://luminal.lol/
+https://luminalv2when.cfd/
+https://dylanwantspay.cfd/
+https://grandemass.gostiljerestoran.rs/
+https://vseesa.granit-union.ru/
+https://p-nation.hand-und-herz.at/
+https://storage.googleapis.com/fernisbest.index.html
 https://
 https://
 https://

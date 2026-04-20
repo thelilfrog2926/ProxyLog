@@ -2,8 +2,10 @@
 -----------------------------
 https://duckduckgo.com
 -----------------------------------------------
-[WORKS!!!!! use this](https://s3.amazonaws.com/angelfern/index.html )
-[WORKS!!!!! use this as well](https://s3.amazonaws.com/deaganfern/index.html)
+[Link 1 Fern WORKS!!!!! use this](https://s3.amazonaws.com/angelfern/index.html )
+--
+[Link 2 Fern WORKS!!!!! use this as well](https://s3.amazonaws.com/deaganfern/index.html)
+--
 [STRAWBERRYWORKS use this too i guess](https://math.thongthaitextile.com/)
 ---------------------------------------------------
 # Extra sites (will be tested)
@@ -11,11 +13,7 @@ https://duckduckgo.com
 ---------------------------------------------------
 # Other Stuffs
 ---------------------------------------------------
-https://woofbite1.blogspot.com/
-
-(OR)
-
-https://schooltimes1010.blogspot.com
+# Nothing here bucko
 --------------------------------------------------
 # Misc
 --------------------

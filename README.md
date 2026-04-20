@@ -6,6 +6,12 @@ https://duckduckgo.com
 --
 [Link 2 Fern WORKS!!!!! use this as well](https://s3.amazonaws.com/deaganfern/index.html)
 --
+[Link 3 Fern WORKS!!!!! use this as well](https://s3.amazonaws.com/bulledu/index.html)
+--
+[Link 4 Fern WORKS!!!!! use this as well](https://s3.amazonaws.com/bullmath/index.html)
+-
+[Link 5 Fern WORKS!!!!! use this as well](https://s3.amazonaws.com/bullubg/index.html)
+-
 [STRAWBERRYWORKS use this too i guess](https://math.thongthaitextile.com/)
 ---------------------------------------------------
 # Extra sites (will be tested)

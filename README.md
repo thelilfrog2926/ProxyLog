@@ -2,7 +2,8 @@
 -----------------------------
 https://duckduckgo.com
 -----------------------------------------------
-[WORKS!!!!! use this](https://low.notinthearchives.net/)
+[WORKS!!!!! use this](https://s3.amazonaws.com/angelfern/index.html )
+[WORKS!!!!! use this](https://s3.amaz)
 [STRAWBERRYWORKS use this too i guess](https://math.thongthaitextile.com/)
 ---------------------------------------------------
 # Extra sites (will be tested)

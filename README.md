@@ -21,6 +21,11 @@ Copy
 https://f3rnlink.b-cdn.net/
 Copy
 https://fernsplantingschool.b-cdn.net/
+
+
+https://fernvcsa.gangashrestha.com.np/
+https://welovevcsa.rymconstrucciones.cl/
+https://realvcsa.kinemasot.cl/
 ---------------------------------------------------
 # Other Stuffs
 
